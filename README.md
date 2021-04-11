@@ -2,7 +2,7 @@
 
 
 
-- 🔭 I’m currently working on seedphrase???
+- 🔭 I’m currently working on learning javaaaaa???
 - 🌱 I’m currently learning Java
 - 👯 I’m looking to collaborate on Binance
 - 🤔 I’m looking for help with practice
