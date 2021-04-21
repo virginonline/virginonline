@@ -11,6 +11,5 @@
 - 😄 Pronouns: he/his????
 - ⚡ Fun fact: i lost $70 fckkkk
 
-<img src = "https://github-readme-stats.vercel.app/api?username=virginonline&show_icons=true&theme=dark">
 
 
