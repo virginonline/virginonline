@@ -8,7 +8,7 @@
 - 💬 Ask me about programming?
 - 📫 How to reach me: Telegram - [@virginonline](https://t.me/virginonline)
 - 😄 Pronouns: he/his????
-- ⚡ Fun fact: i lost $70 fckkkk
+- ⚡ Fun fact: i lost $160 fckkkk
 
 
 
