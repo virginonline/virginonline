@@ -2,6 +2,6 @@
 
 
 - 📫 How to reach me: Telegram - [@virginonline](https://t.me/virginonline)
-- Stack - Java,Vue
+- Stack - Java
 
 
